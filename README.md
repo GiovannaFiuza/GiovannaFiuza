@@ -1,10 +1,10 @@
 👋 Oi, eu sou a @GiovannaFiuza
 
 
-🌱 Atualmente estou aprendendo mais sobre desenvolvimento em frontend e PHP
+🌱 Atualmente estou focada em aprendizado em: Angular e C# (.NET)
 
-💞️ Procuro colaborar em áreas de desenvolvimento sejam elas front ou backend
+💞️ Tenho experiência como Dev FullStack 
 
 📫 Como me encontrar: através do meu e-mail giovannafiuza13@gmail.com
 
-⚡ Curiosidade divertida: já morei em outro páis. 🌍
+⚡ Curiosidade divertida: já morei em outro páis e falo 3 idiomas. 🌍
