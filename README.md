@@ -7,4 +7,4 @@
 
 📫 Como me encontrar: através do meu e-mail giovannafiuza13@gmail.com
 
-⚡ Curiosidade divertida: já morei em outro páis e falo 3 idiomas. 🌍
+⚡ Curiosidade divertida: já morei em outro país e falo 3 idiomas. 🌍
